@@ -44,4 +44,4 @@
 ![github card](https://github-readme-stats.vercel.app/api/pin/?username=Rakaxyxz&repo=RakaManage&theme=dark)
 ![github card](https://github-readme-stats.vercel.app/api/pin/?username=Rakaxyxz&repo=RaxFilm&theme=dark) 
 
-#### SELAMAT MENIKMATI REPO SAYA😄
+#### 𝘴𝘦𝘭𝘢𝘮𝘢𝘵 𝘮𝘦𝘯𝘪𝘬𝘮𝘢𝘵𝘪 𝘳𝘦𝘱𝘰𝘴𝘪𝘵𝘰𝘳𝘺 𝘴𝘢𝘺𝘢😄
